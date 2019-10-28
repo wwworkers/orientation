@@ -2,6 +2,8 @@
 
 - [Fall 2015](https://www.nytimes.com/2015/09/13/business/at-wework-an-idealistic-startup-clashes-with-its-cleaners.html)
 
+- [May 2018, designers]
+
 - [Spring 2019](https://www.bloomberg.com/news/articles/2019-03-01/wework-cuts-about-300-employees-ahead-of-a-hiring-binge)
 
 - [Fall 2019, rumored](https://www.bloomberg.com/news/articles/2019-10-03/wework-bosses-tell-employees-that-job-cuts-are-coming-this-month)
